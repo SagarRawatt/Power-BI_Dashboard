@@ -13,4 +13,4 @@ This endeavor wasn't just about crunching numbers; it was about driving tangible
 
 
 ![Screenshot 2024-07-27 235812](https://github.com/user-attachments/assets/317cd8a9-c08b-473c-9cbe-6a4a1c4b29ba)
-![Screenshot 2024-07-27 235812](https://github.com/user-attachments/assets/317cd8a9-c08b-473c-9cbe-6a4a1c4b29ba)
+
